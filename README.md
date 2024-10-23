@@ -3,7 +3,7 @@
 
 - 🌱 I’m currently learning **AWS and Business Management**
 
-- 📫 You can reach me at **maycon.ferreira@outlook.com.br**
+- 📫 You can reach me at **mayconfrr@outlook.com.br**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
